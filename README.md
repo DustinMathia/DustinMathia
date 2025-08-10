@@ -1,1 +1,2 @@
-[![Watch the video](https://img.youtube.com/vi/qKFuQakKlDU/maxresdefault.jpg)](https://www.youtube.com/watch?v=qKFuQakKlDU?autoplay=1)
+<!-- [![Watch the video](https://img.youtube.com/vi/qKFuQakKlDU/maxresdefault.jpg)](https://www.youtube.com/watch?v=qKFuQakKlDU?autoplay=1) -->
+<div class="tenor-gif-embed" data-postid="19401653" data-share-method="host" data-aspect-ratio="1" data-width="100%"><a href="https://tenor.com/view/among-us-twerk-cursed-funny-as-hell-funny-gif-19401653">Among Us Twerk Sticker</a>from <a href="https://tenor.com/search/among+us-stickers">Among Us Stickers</a></div> <script type="text/javascript" async src="https://tenor.com/embed.js"></script>
